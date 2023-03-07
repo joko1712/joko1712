@@ -1,5 +1,4 @@
 ### Hi there 👋
-- 🔭 I’m currently working on ...
 - 🌱 I’m currently learning in NOVA School of Science and Technology
 - 💬 Ask me about anything
 - 📫 How to reach me: joko1712#5268 on discord
