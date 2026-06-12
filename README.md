@@ -1,3 +1,3 @@
 ### Hi there 👋
-- 🌱 I’m currently a Researcher in NOVA School of Science and Technology
+- 🌱 I’m currently working as a AI Developer at Porta da Frente Christie's International Real Estate
 - 💬 Ask me about anything
